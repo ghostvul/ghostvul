@@ -2,4 +2,4 @@
 
 <sub> sign my [新book](https://unpure.atabook.org)</sub>
 
-<sub> 4 some treats </sub>
+<sub> for some treats  o_< </sub>
