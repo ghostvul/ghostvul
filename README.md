@@ -15,13 +15,12 @@
    iwcuf - semiactive - i can be blunt sometimes </sub>
   </details>
   
-
+<details>
   <summary>  2. </summary>
 <sub>
   <br> dni : <br> under 16 -
 any kind of drama (unless i say its ok first) - incest </sub>
   </details>
-
 
 <details>
   <summary>  3. </summary>
