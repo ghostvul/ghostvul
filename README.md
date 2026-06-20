@@ -4,8 +4,11 @@
 <sub> iwcuf   。  
     semi active &
         employed. </sub>
-        
+
+  <img src="https://file.garden/aWda6_hwaGcNwjuj/soleum.png" width="auto" align="left">
+  
 <details>
+  
   <summary>  1. </summary>
 
 <sub>
@@ -13,12 +16,9 @@
 any kind of drama (unless i say its ok first) - incest </sub>
   </details>
 
-![kya](https://file.garden/aWda6_hwaGcNwjuj/soleum.png)
-
 <details>
   <summary>  2. </summary>
 
 <sub>
-  <br> main interests : <br> 
-   twst - adwd - gsgw </sub>
+  <br> main interests : <br> twst - adwd - gsgw </sub>
   
