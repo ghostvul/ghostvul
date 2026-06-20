@@ -12,3 +12,9 @@
   <br> dni : <br> under 16 -
 any kind of drama - incest </sub>
   </details>
+
+<details>
+  <summary> ♡ 2. </summary>
+
+  <br> main intrests : <br> twst - adwd - vocaloid
+  
