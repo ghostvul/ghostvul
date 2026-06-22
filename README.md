@@ -18,8 +18,7 @@
 <details>
   <summary>  2. </summary>
 <sub>
-  <br> dni : <br> under 16 -
-any kind of drama (unless i say its ok first) - incest </sub>
+  <br> dni : <br> under 16 - basic dni - attention seekers</sub>
   </details>
 
 <details>
