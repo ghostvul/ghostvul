@@ -18,7 +18,7 @@
 <details>
   <summary>  2. </summary>
 <sub>
-  <br> dni : <br> under 16 - basic dni - attention seekers</sub>
+  <br> dni : <br> under 16 - basic dni - possesive yumes</sub>
   </details>
 
 <details>
